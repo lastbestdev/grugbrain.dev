@@ -637,6 +637,16 @@ is maybe nature of programming for most grug to feel impostor and be ok with is 
 
 any young grug read this far probably do fine in program career even if frustrations and worry is always to be there, sorry
 
+# <a name="grug-on-ai"></a>[Artificial Intelligence (AI)](#grug-on-ai)
+
+grug see new *extra shiney* think tool emerg
+
+think tool come in many name but all do same thing. tool shaman say help grug do code faster and more well, but grug still need know how direct think tool. how grug know where direct think tool if grug ask think tool first? many such problem
+
+some shaman *think* all grug will be replace by think tool. grug no think so anytime soon. think tool fail bad when ask to be creative
+
+grug think think tool good, but grug need understand for self! 
+
 # <a name="grug-reads"></a>[Reads](#grug-reads)
 
 grug like these:
