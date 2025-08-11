@@ -643,7 +643,7 @@ grug see new *extra shiney* think tool emerg
 
 think tool come in many name but all do same thing. tool shaman say help grug do code faster and more well, but grug still need know how direct think tool. how grug know where direct think tool if grug ask think tool first? many such problem
 
-some shaman *think* all grug will be replace by think tool. grug no think so anytime soon. think tool fail bad when ask to be creative
+some shaman *think* all grug will be replace by think tool. no think so anytime soon. think tool fail bad when grug ask to be creative. tool not able write this!
 
 grug think think tool good, but grug need understand for self! 
 
